@@ -1,3 +1,3 @@
 ## Hellx2
 
-I'm an Australian developer with a strong willingness to help where possible.
+I'm an Australian developer that likes helping people.
